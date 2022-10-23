@@ -69,7 +69,7 @@ No, en absoluto
 **Parcialmente**
 
 
-7. En la laecuta realizada se concluye que las emisiones de CO2 totales del sector eléctrico han credido debido a
+7. En la lectura realizada se concluye que las emisiones de CO2 totales del sector eléctrico han crecido debido a
 
 
 a) La expansión de termoelectricidad  con base en los líquidos de petróleo
